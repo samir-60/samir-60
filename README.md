@@ -1,5 +1,6 @@
-## 💫 About Me:
-👔 Business Buff | 🎓 Lifelong Learner | 💡 Tech Explorer
+## About Me
+
+Passionate about Business & Entrepreneurship | Always Learning, Always Growing | Exploring Technology, Building Ideas & Turning Them into Reality
 
 
 ## 🌐 Socials:
